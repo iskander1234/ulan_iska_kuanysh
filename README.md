@@ -1,0 +1,1 @@
+# ulan_iska_kuanysh
